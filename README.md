@@ -4,4 +4,4 @@ Showcase: https://youtu.be/ADB8MJeSXZA
 
 have fun with the script
 
-Support on my Discord: https://discord.gg/SZX74tT7Gv
+Support on my Discord: https://discord.luxcoding.de
